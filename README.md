@@ -1,1 +1,1 @@
-# thevmfriends.github.io
+# the-vm-friends
